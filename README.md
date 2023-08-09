@@ -1,0 +1,2 @@
+# news
+IIT INDORE COLLEGE NEWS
